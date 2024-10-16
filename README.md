@@ -1,16 +1,23 @@
-## Hi there 👋
+#### Olá,este é meu perfil ✌
+Meu nome é Felipe Bietkovski Padilha
 
-<!--
-**FelipePadilha360/FelipePadilha360** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Estudante do ensino médio ( 1 ano)
+- Pratico tudo quanto é tipo de esporte, especialmente futebol e voleibol🏐⚽️
+- Gosto de dias ensolarados e calor☀️
+- Pretendo ser fisioterapeuta
+- Também quero vender com DropChip👨🏻‍💻
+-  Utilizo o [Alura](https://www.alura.com.br/) nas minhas aulas
+- Gosto de jogos eletrônicos, incluindo [Roblox](https://www.roblox.com) 🕹📱
+  
+  
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+  ![]![my-hero-academia-boku-no-hero-academia](https://github.com/user-attachments/assets/37151dbc-d8cf-4f68-8ad7-89af3b34f499)
+  ![]![akaza-rengoku](https://github.com/user-attachments/assets/c05b3dbe-45c5-445e-a369-2a0cf3c367b2)
+
+  
